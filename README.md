@@ -1,10 +1,9 @@
-- 👋 Hi, I’m @GenericTuxedoGuy
-- 👀 I’m interested in anime thighs.
-- 🌱 I’m currently learning nothing at the moment, besides basic English/math classes.
-- 💞️ I’m looking to collaborate on nothing as of now.
-- 📫 How to reach me. You can message me on Discord, at GenericTuxedoGuy#8008, or https://discord.com/users/469633377280983051.
+hi everyone its is me the generic guy of the tuxedos
 
-<!---
-GenericTuxedoGuy/GenericTuxedoGuy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+im a grown man who like labubus and friday night funkin 
+
+![how-i-keep-the-rent-low-in-my-neighbourhood](https://github.com/user-attachments/assets/8fb85cc2-c698-41b6-9fd3-52f116ae8740)
+
+ok bye
+
+![smileywave](https://github.com/user-attachments/assets/c20208c5-b65f-4376-a4f3-df5db9e3086d)
